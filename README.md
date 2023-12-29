@@ -1,1 +1,8 @@
-[<img align="left" src="https://cdn.discordapp.com/attachments/1020800086265057300/1132574160476975246/F1BSS3FWwAcoDEU_2.png">](https://twitter.com/emnide/status/1679933599292768268/photo/1)
+aspen or vic 
+he/any, 17 years old
+autistic, aroace, taken
+dni proshippers, ppl under 15, and drama llamas
+
+biggest interests: noragami, story of seasons/harvest moon/rune factory, project moon, classic lit, and typology
+
+i also like mp100, csm, pmmm, bsd, nge, crob, pkmn and a lot of other things
