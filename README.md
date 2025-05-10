@@ -1,6 +1,6 @@
-aspen or vic 
+aspen
 
-he/any, 18 years old
+he/any, 19 years old
 
 autistic, aroace, taken
 
