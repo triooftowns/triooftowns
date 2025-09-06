@@ -2,7 +2,7 @@ aspen
 
 he/any, 19 years old
 
-autistic, aroace, taken
+autistic, aroace
 
 dni proshippers, ppl under 15, and drama llamas
 
